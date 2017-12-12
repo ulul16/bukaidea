@@ -1,0 +1,2 @@
+# bukaidea
+berfikir idea 
